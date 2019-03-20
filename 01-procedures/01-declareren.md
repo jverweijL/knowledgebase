@@ -1,1 +1,2 @@
-# Declareren
+# Declareren[](id=declareren)
+Over de bonnetjes en meer...
